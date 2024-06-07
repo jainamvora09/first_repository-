@@ -1,2 +1,2 @@
-I name is Jainam Vora
-I am Pursuing Businesses Intelligence Analytics 
+My name is Jainam Vora.
+I am Pursuing Businesses Intelligence Analytics.
